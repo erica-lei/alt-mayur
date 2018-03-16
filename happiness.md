@@ -1,1 +1,1 @@
-Doing nothing makes me :)
+Traveling and Doing nothing makes me :)
